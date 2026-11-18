@@ -1,4 +1,4 @@
-hi so I’m basically Stan 
+hi so I’m basically Stan n possibly dead
 
 <img width="99" height="56" alt="IMG_1300" src="https://github.com/user-attachments/assets/85028f4d-50d4-4cb8-b9da-f7b5c9f0eca2" />
 <img width="99" height="55" alt="IMG_1299" src="https://github.com/user-attachments/assets/4bb1c6e8-33ea-4965-8c6d-86bc36faa0de" />
