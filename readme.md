@@ -1,5 +1,5 @@
 <img width="508" height="680" alt="IMG_6882" src="https://github.com/user-attachments/assets/3ab6ba6c-1256-422c-b9f2-9a0821487c38" />
-hi so I’m basically Stan me n kk fr ily dude <3
+hi so I’m basically Stan
 
 <img width="99" height="56" alt="IMG_1300" src="https://github.com/user-attachments/assets/85028f4d-50d4-4cb8-b9da-f7b5c9f0eca2" />
 <img width="99" height="55" alt="IMG_1299" src="https://github.com/user-attachments/assets/4bb1c6e8-33ea-4965-8c6d-86bc36faa0de" />
