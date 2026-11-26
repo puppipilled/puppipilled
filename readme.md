@@ -7,5 +7,3 @@ hi so I’m basically Stan
 <img width="99" height="56" alt="IMG_1297" src="https://github.com/user-attachments/assets/5e728526-3e56-413f-87b0-65a2a1fd46dc" />
 <img width="99" height="57" alt="IMG_1296" src="https://github.com/user-attachments/assets/9153afd4-1eaf-4be8-b005-2f9303e05ba2" />
 <img width="480" height="270" alt="IMG_1271" src="https://github.com/user-attachments/assets/09dbfbd4-e6f1-4ffe-a9f5-5090537d0963" />
-Noonnnoooo kk no die
-<img width="870" height="1161" alt="IMG_6892" src="https://github.com/user-attachments/assets/4c74c923-d364-49a1-ba3e-76bd0eabeabb" />
