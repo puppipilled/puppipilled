@@ -4,3 +4,4 @@
 hi so I’m basically Stan
 
 I feel incredibly suicidal 
+hi I’ll put my address on here n twt so ppl can gen come and end my shit bc what the fuck 3479 Pacific Dr, Naples, FL 34119 plz plz please fucking please
